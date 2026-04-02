@@ -1,4 +1,6 @@
 # Automotive Glass Market – Comprehensive Industry Report
+![Automotive Glass Market (1)](https://github.com/user-attachments/assets/d1ae0ded-5952-4424-b774-bc95739a782c)
+
 
 The Automotive Glass Market sits at the intersection of traditional automotive manufacturing and next‑generation mobility technologies. Amid evolving vehicle safety standards, electrification, and smart glass technologies, demand for automotive glass solutions is accelerating worldwide. Recent industry developments reflect both technological disruption and persistent supply chain pressure points that have direct implications for investor positioning and procurement strategies.
 
